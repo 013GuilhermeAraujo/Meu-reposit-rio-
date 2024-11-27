@@ -1,1 +1,1 @@
-# Meu-reposit-rio-
+Guilherme Araújo, 15 anos. Moro no Guarujá, uma cidade que adoro por suas praias e paisagens. Gosto de matemática, de jogar jogos online e de me divertir com amigos. Aproveito meu tempo livre curtindo o mar e o clima tranquilo da minha cidade. Sempre procuro aproveitar cada momento.
